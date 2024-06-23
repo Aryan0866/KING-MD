@@ -3,7 +3,7 @@
   <a href="https://chat.whatsapp.com/JIJplkiYyrFE4dyFGade43">
     <img alt=Support height="350" src="https://telegra.ph/file/77ccdec71579d32cd7f06.jpg"> 
     </p>
-<h1 align="center">    ꪶKING-MD-BOTꫂ
+<h1 align="center">    ꪶRAJPOOT-MD-BOTꫂ
 </h1>
 <p align="center"> 
   
